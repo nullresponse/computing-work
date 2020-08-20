@@ -9,3 +9,6 @@ Things I like to do:
 * Play games
 * Cry
 * Summon Cthulhu
+
+Time for a story:
+I want to cry. I will cry. I have cried. i no longer want to cry
