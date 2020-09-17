@@ -9,9 +9,9 @@ Things I like to do:
 * Play games
 * Cry
 * Summon Cthulhu
+* Get nae naed
 
-Time for a story:
 
-I want to cry. I will cry. I have cried. i no longer want to cry
+reeeeeeeee
 
 In order for you to rest your mind, here is some "calming" [music](https://www.youtube.com/watch?v=wJWksPWDKOc)
