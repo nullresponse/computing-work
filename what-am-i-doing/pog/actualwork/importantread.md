@@ -15,3 +15,12 @@ Things I like to do:
 reeeeeeeee
 
 In order for you to rest your mind, here is some "calming" [music](https://www.youtube.com/watch?v=wJWksPWDKOc)
+
+
+
+dorime
+interimo adapare dorime
+ameno
+ameno
+latire
+latire mo
